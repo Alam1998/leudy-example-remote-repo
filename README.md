@@ -8,3 +8,7 @@ im majoring in emerging media
 Hi my name is Kevin 
 
 im majoring in emerging media
+
+hello, my name is griselda cortez
+
+i also major in emerging media
