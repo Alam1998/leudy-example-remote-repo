@@ -4,3 +4,7 @@ for the exercise in lab 4 / part 1
 Hi my name is leudy 
 
 im majoring in emerging media
+
+Hi my name is Kevin 
+
+im majoring in emerging media
